@@ -1,4 +1,4 @@
-### Hala Claudio 👋
+### Hala Claudio :computer:
 
 **Cualidades**:bulb:
 -Respetuoso
