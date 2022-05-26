@@ -1,4 +1,4 @@
-### Hola 'CLAUDIO' :computer:
+### Hola,  :computer:
 
 ***Cualidades***:bulb:
 -Respetuoso
